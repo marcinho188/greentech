@@ -1,1 +1,4 @@
-"# greentech" 
+o "# greentech" 
+o que é tecnologia verde eu estava, é mais uma inchação do sistema,mais nada de oficial de melhor na indústria, é uma alimentação do governo deste atual quê formalizou isto, assim de cartaz parece que aquelee... negócio.
+eu não tenho certeza mais faz parte das construções atuais destes prédios de luxo nos jardins, são  seobra estrutural feitas todas de madeira, é interessante mais não entra na real no futuro tipo staits.
+é tem cerebrar isto quê tem e se vê nos dias atuais, pois da se pra esperar também tudo, é o que tá na boca de todo mundo,por daqui a pouco irão fazer panelas de madeira, talheres de madeira muitos já como colherão conchinha, pois é que civilização acho quê porque há muita injustiça no Brasil muito roubos casos de corrupção pessoas que vivem disto, é isto camarada.
